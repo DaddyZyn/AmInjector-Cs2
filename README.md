@@ -1,3 +1,3 @@
-# AMnesia Roblox External
+# Amnesia Roblox External
 coming soon
 
