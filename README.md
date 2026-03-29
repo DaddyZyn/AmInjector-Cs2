@@ -1,3 +1,3 @@
 # Amnesia Roblox External
-coming soon
+[coming soon](https://discord.gg/U2q4wMzz8z)
 
